@@ -24,3 +24,4 @@ I enjoy working with you
 
 _Just a few more hours left in the day_!
 
+*I play rhythm games to temporarily forget the fact I know nothing about code :)*
